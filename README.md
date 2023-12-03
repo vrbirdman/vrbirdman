@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @vrbirdman
+- 👀 I’m interested in science and technology 
+- 📫 How to reach me: rocivarp@gmail.com
